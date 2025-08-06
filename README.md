@@ -32,7 +32,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 # Fuentes abiertas para informes diarios
 
 ## 🔴 Conflicto Armado
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -40,7 +59,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 🟠 Terrorismo
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -48,7 +86,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 🟡 Criminalidad
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -56,7 +113,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 🔵 Disturbios Civiles
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -64,7 +140,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 🟢 Riesgos Naturales (AEMET)
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -72,7 +167,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## ⚫ Riesgos Tecnológicos
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -80,7 +194,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 🚗 Tráfico y Siniestros Viales
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
@@ -88,7 +221,26 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 Canal de Telegram Noticias Libya_breaking : [RSS](https://t.me/libyabreaking)
 
 ## 📡 Redes Sociales (Telegram, Instagram, Twitter)
-
+- 🟡 https://www.eanlibya.com
+- 🟡 https://lywitness.com/
+- 🟡 https://alwasat.ly/
+- 🟡 https://www.addresslibya.com/
+- 🟡 https://lana.gov.ly/
+- 🟡 https://www.newarab.com/
+- 🟡 https://arabi21.com/
+- 🟡 https://www.middle-east-online.com/
+- 🟡 https://www.alaraby.co.uk/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://almarsad.co/
+- 🟡 https://libyaalahrar.tv/
+- 🟡 https://www.alwatan-ly.com/
+- 🟡 https://www.gulf-times.com/
+- 🟡 https://www.alsaaa24.com/
+- 🟡 https://www.libyanexpress.com/
+- 🟡 https://libyaalhadath.net/
+- 🟡 https://almenassa.ly/
+- 🟡 https://libyareview.com/
+- 🟡 https://arabi21.com/
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
