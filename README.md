@@ -22,8 +22,6 @@ https://www.facebook.com/share/v/16Stp96Srx/
 - 🟡 https://libyareview.com/
 - 🟡 https://arabi21.com/
 - 🟡 http://linkedin.com/in/ianxrichards
-<img width="442" height="649" alt="image" src="https://github.com/user-attachments/assets/71f11695-e60d-4c30-84cd-81dc2e8e469d" />
-
 - 🟡 Canal de Telegram Noticias AlñmasarTV: [RSS](https://t.me/almasartvlibya)
 - 🟡 Canal de Telegram Noticias G+: [RSS](https://t.me/gplusss)
 - 🟡 Canal de Telegram Noticias : [RSS](https://t.me/sefr0ly)
